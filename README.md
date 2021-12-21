@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nibink7
 - 👀 I’m interested in society
-- 🌱 I’m currently learning Digital Ideation
+- 🌱 I’m currently learning japanese because i'm a WEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEB
 - 💞️ I’m looking to collaborate on things.
 
 <!---
