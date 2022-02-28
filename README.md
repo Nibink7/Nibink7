@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Nibink7
-- 👀 I’m interested in society
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on things.
 
