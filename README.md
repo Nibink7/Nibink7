@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nibink7
-- 🌱 I’m currently learning
+- 🌱 I’m currently learning Digital Ideation
 - 💞️ I’m looking to collaborate on things.
 
 <!---
